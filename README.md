@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HillarySccp005
+- 👀 I’m interested in ...estou fazendo curso de programaçao- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ... empresaria
+- 📫 How to reach me ... ser uma empresaria de sucesso.
